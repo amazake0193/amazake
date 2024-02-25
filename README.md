@@ -1,0 +1,2 @@
+# amazake
+to the moon
